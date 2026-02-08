@@ -42,8 +42,8 @@ Edit
 
 ## 🔗 Connect with Us
 
-- 💼 [LinkedIn – Rahul Prajapati](https://www.linkedin.com/in/rahul-rrp)
-- 💻 [GitHub – rahul-rrp](https://github.com/rahul-rrp)
+- 💼 [LinkedIn –Raghvendra Singh](https://www.linkedin.com/in/raghvendra-singh-/)
+- 💻 [GitHub – Raghvendra Singh](https://github.com/rsraghu5123)
 
 ---
 
